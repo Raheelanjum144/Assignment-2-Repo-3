@@ -1,1 +1,2 @@
 # Assignment-2-Repo-3
+I want to be a data scientist. I find the smit bst option as a training center so thanks to the institution and the my teacher Ahmad jajja who provide us a chance to be the winner in this field. Regards
